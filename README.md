@@ -1,1 +1,1 @@
-# Diamond.github.vip
+# Diamond.github.io
